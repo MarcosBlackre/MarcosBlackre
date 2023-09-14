@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-sou marcos e tenho 17 anos e estou aprendendo programação
+sou marcos e tenho 15 anos e estou aprendendo programação
